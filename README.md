@@ -4,6 +4,6 @@
 
 # CONTACT 
 
-[Bryan Kangah] (mailto:kangahbryan5@gmail.com?subject=whatsthematter)
+[Bryan Kangah] (mailto:kangahbryan5@gmail.com)
 
 
