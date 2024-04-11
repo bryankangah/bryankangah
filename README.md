@@ -1,6 +1,4 @@
-# PORTFOLIO
 
-[bryankangah.com](https://bryankangah.com) wip
 
 # CONTACT 
 
